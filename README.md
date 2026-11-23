@@ -1,0 +1,1 @@
+# praktik-konfigurasi1
